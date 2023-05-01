@@ -1,4 +1,4 @@
-🌱 : I'm currently learning a lot of things at once but I'm currently working on a game design and a programming language too
+🌱 : I'm currently learning a lot of things at once and currently working on a lot of things at once too.
 
 📫 : yayko.email@gmail.com
 <!---
